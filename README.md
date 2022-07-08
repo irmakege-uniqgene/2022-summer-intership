@@ -1,2 +1,2 @@
-# 2022-summer-intership
+# 2022-Summer-Intership
 Internship Documents 
